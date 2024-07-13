@@ -5,6 +5,8 @@
 
 >*Votre sécurité en ligne, notre priorité.* 🛡️
 
+**Nous proposons aussi des cours et formations gratuitements** pour vous former au base de l'informatique, mais aussi pour les intermédiaires et avancés.
+
 #### ⏲️🔁 Préparation de la suite du projet en cour !
 
 Merci pour votre soutien ! Ensemble, nous pouvons rendre Internet plus sûr. 🌐💪
